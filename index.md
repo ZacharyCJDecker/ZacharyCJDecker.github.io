@@ -1,4 +1,3 @@
-## Zachary CJ Decker
 *Zachary.Decker@NOAA.gov* // *ZacharyCJDecker@gmail.com* // *[ZacharyCJDecker.com](https://ZacharyCJDecker.com)*
 
 ***
