@@ -1,6 +1,8 @@
 ## Zachary CJ Decker
 *Zachary.Decker@NOAA.gov* // *ZacharyCJDecker@gmail.com* // *[ZacharyCJDecker.com](https://ZacharyCJDecker.com)*
+
 ***
+
 <img 
   src="/img/Headshot_BW_2k_2k.jpg" 
   alt="Portfolio Picture of Zach" 
